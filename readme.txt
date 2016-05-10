@@ -1,3 +1,1 @@
-git init...
-xiao jie
-ÄãºÃ£¡¹þ¹þ¹þ¹þ
+good good study,day day up.
